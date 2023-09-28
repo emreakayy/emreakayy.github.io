@@ -1,1 +1,0 @@
-# emreakayy.github.io
